@@ -1,7 +1,7 @@
 ### Hello there!
 
-![](/MeagerHardtofindAlbertosaurus-size_restricted.gif)  
-![github](https://user-images.githubusercontent.com/94916220/178524662-ffb51c29-d54f-4512-8028-89909611c983.mp4)
+
+![](https://user-images.githubusercontent.com/94916220/178524662-ffb51c29-d54f-4512-8028-89909611c983.mp4)
 
 ### Achievements
 
