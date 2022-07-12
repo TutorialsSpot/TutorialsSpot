@@ -2,6 +2,8 @@
 
 [Source](https://gfycat.com/meagerhardtofindalbertosaurus-hello-there-star-wars-prequelmemes)
 
+<img alt="gif" src="https://github.com/TutorialsSpot/TutorialsSpot/blob/main/EnlightenedHeftyGoldenmantledgroundsquirrel-mobile.mp4" width=150px; height=320px/>
+
 ### Achievements
 
 Do you have or know an Achievement not listed [here](https://github.com/Schweinepriester/github-profile-achievements#achievements)? Let me know! :)
