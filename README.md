@@ -1,9 +1,6 @@
 ### Hello there!
 
-[Source](https://gfycat.com/meagerhardtofindalbertosaurus-hello-there-star-wars-prequelmemes)
-
-
-<p><img align="right" alt="gif" src="https://raw.githubusercontent.com/TutorialsSpot/TutorialsSpot/main/EnlightenedHeftyGoldenmantledgroundsquirrel-mobile.mp4" width=500px; height=320px/></p>
+[![anime-boy](https://user-images.githubusercontent.com/94916220/178528746-a47659d9-d5d6-40be-82fa-161c6736f9f7.gif)
 
 ### Achievements
 
