@@ -3,7 +3,7 @@
 [Source](https://gfycat.com/meagerhardtofindalbertosaurus-hello-there-star-wars-prequelmemes)
 
 
-<p><img align="right" alt="gif" src="https://github.com/TutorialsSpot/TutorialsSpot/blob/main/EnlightenedHeftyGoldenmantledgroundsquirrel-mobile.mp4" width=500px; height=320px/></p>
+<p><img align="right" alt="gif" src="https://raw.githubusercontent.com/TutorialsSpot/TutorialsSpot/main/EnlightenedHeftyGoldenmantledgroundsquirrel-mobile.mp4" width=500px; height=320px/></p>
 
 ### Achievements
 
